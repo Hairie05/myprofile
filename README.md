@@ -1,3 +1,3 @@
 # myprofile
 
-HAIRIE{I_<3_C4T5}
+HAIRIE{I_H4TE_C4T5}
